@@ -4,7 +4,7 @@ Crivly Super App: Creating an Infrastructure to explore, connect and buy from br
 
 Crivly Wallet: Making Crypto accessible to every human around the World. 🌎 
 
-Crivly AB Foundation: Causes I care about are Animal Welfare, Education, Poverty Alleviation, Social Services, Economic Empowerment. ❤️
+Crivly AB Foundation: Animal Welfare, Education, Poverty Alleviation, Social Services, Economic Empowerment. ❤️
 
 If you want to work with me on any of the aboves please reach out to me at arshdeep@crivly.com 
 
